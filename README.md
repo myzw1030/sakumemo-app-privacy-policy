@@ -1,0 +1,1 @@
+# sakumemo-app-privacy-policy
